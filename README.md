@@ -160,7 +160,7 @@ Sir Napoleon (nodding grimly): "Then we move at first light. Lelouch, you and Se
 
 Lelouch VI Britannia (a dark smile playing on his lips): "They wanted to play in the shadows? Then let us show them how the shadows truly dance."
 
-As the first rays of dawn touched the horizon, they set out, a grim procession moving through the ruined city. The air was thick with tension, the silence broken only by the sound of their footsteps.
+As the first rays of dawn touched the horizon, they set out, a grim procession moving through the ruined city. The air was thick with tension, the silence broken only by the sound of their footsteps XZ.
 
 Captain Selene (scanning the horizon, her bow at the ready): "I sense a disturbance in the air, a strange energy. It's like... a dark echo."
 
